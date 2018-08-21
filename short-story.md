@@ -1,1 +1,1 @@
-Johnny was train mechanic, like his father before him. He's been working on trains since he was 12 years old. Johnny wants to learn how to program so he can be ready for when autonomous trains become the norm.  
+Johnny was train mechanic, like his father before him. He's been working on trains since he was twelve years old. Johnny wants to learn how to program so he can be ready for when autonomous trains become the norm.  
