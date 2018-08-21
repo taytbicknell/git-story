@@ -1,1 +1,1 @@
-Jonathan was train mechanic, like his father before him. He's been working on trains since he was twelve years old. Jonathan wants to learn how to program so he can be ready for when autonomous trains become the norm.  
+Jonathan was a train mechanic, like his father before him. He's been working on trains since he was twelve years old. Jonathan wants to learn how to program so he can be ready for when autonomous trains become the norm.  
